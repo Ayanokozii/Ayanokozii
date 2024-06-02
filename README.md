@@ -1,4 +1,4 @@
-https://telegra.ph/file/23af66ccd2777d82b1323.jpg
+<p align="center"><a href="https://t.me/SUBHI_LOVE"><img src="(https://telegra.ph/file/23af66ccd2777d82b1323.jpg)" width="300"></a></p>
 NAME              :-     𝗖𝗛𝗜𝗞𝗨❤
  
  TELEGRAM NAME      :-  𝑨𝐘𝐀𝐍𝐎𝐊𝐎𝐙𝐈🐱

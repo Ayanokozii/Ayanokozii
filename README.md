@@ -1,4 +1,5 @@
- NAME              :-     𝗖𝗛𝗜𝗞𝗨❤
+https://telegra.ph/file/23af66ccd2777d82b1323.jpg
+NAME              :-     𝗖𝗛𝗜𝗞𝗨❤
  
  TELEGRAM NAME      :-  𝑨𝐘𝐀𝐍𝐎𝐊𝐎𝐙𝐈🐱
 
